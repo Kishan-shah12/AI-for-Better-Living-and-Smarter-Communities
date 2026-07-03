@@ -1,0 +1,1 @@
+# AI-for-Better-Living-and-Smarter-Communities
